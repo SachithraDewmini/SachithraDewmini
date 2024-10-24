@@ -1,6 +1,6 @@
                                       👋 Hi, I’m **Sachithra Dewmini Panditha**
 -------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------
-                                 _ A passionate full stack developer from Sri Lanka_
+                                 
 
 ![pngtree-long-haired-woman-searching-on-laptop-png-image_11364678](https://github.com/user-attachments/assets/ab71f3ce-9770-482d-b5b2-ba44b8ca571e)
 
